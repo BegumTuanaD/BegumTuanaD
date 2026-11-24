@@ -1,4 +1,4 @@
-# Hi, I'm Stella! 👋
+# Hi, I'm Begüm Tuana! 👋
 
 🎓 Computer Engineering Student
 
